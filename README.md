@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @riteshp111
+- 👋 Hi, I’m Ritesh Abasaheb pachare
 - 👀 I’m interested in expolring the new things
 - 🌱 I’m currently learning python programming
 - 📫 How to reach me you can find mi inshtagram acoount @riteshp111
